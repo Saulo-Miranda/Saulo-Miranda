@@ -8,7 +8,7 @@
 
 🎓&nbsp;Atualmente estou cursando análise e desenvolvimento de sistemas (ADS) e automação.
 
-🌱&nbsp;Busco diariamente estudar e ampliar meus conhecimentos sobre tecnologia. 
+🌱&nbsp;Sou apaixonado por tecnologia e busco diariamente estudar e ampliar meus conhecimentos sobre essa área. 
 
 ✍️&nbsp;No meu tempo livre gosto de assistir filmes, séries, jogar e passar tempo com a família.
 
