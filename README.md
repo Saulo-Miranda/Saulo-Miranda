@@ -12,6 +12,7 @@
 
 ✍️&nbsp;No meu tempo livre gosto de assistir filmes, séries, jogar e passar tempo com a família.
 
+📃&nbsp;Por aqui você vai encontrar codigos simples e alguns projetos desde scripts pequenos até projetos mais complexos. 
 
 
 ### 📊 Stats:
